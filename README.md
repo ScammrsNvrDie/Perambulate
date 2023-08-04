@@ -1,3 +1,3 @@
 # Perambulate
 
-[image][https://imgur.com/a/zw8rRZN]
+![image][https://imgur.com/a/zw8rRZN]
