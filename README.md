@@ -1,2 +1,2 @@
 # Perambulate
-![image](image/perambulate.png)
+![image](/image/perambulate.png)
