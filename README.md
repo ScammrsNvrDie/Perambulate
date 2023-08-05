@@ -1,5 +1,5 @@
 # Perambulate
-![image](/image/Perambule.png)
+![image](/Perambule.png)
 
 
 ## Use of GitHub  
