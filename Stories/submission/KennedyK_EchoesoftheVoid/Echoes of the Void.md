@@ -1,7 +1,8 @@
 # Echoes of the Void
 
 | Asteroid Scan HUD Readout - AS-3492   |  
-|---------------------------------------|    
+|---------------------------------------|
+|**SCAN_DATE:** 2566:2:63|
 |  **Mineral Composition:**                 |  
 |     Silicates: 72%                   |  
 |     Metals: 18%                      |  
