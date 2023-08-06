@@ -21,7 +21,7 @@
 |     Trace Elements: Potential        |                              
 
 2... 6... 3... The Numbers Displayed no brighter, no dimmer...  
-Brighter than a yellow fire with light, than [the presence](https://github.com/ScammrsNvrDie/Perambulate/wiki/Presence-Beacon) beyond the screens  
+Brighter than a yellow fire's light, than [the presence](https://github.com/ScammrsNvrDie/Perambulate/wiki/Presence-Beacon) beyond the screens  
 
 They yet speak, boulder, louder, brighter!  
 Ere, it grew in an ultimate part what is set forth in this scene  
