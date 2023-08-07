@@ -21,8 +21,8 @@
 |     Carbonaceous Material: Possible  |  
 |     Trace Elements: Potential        |                              
 
-2... 6... 3... The Numbers Displayed no brighter, no dimmer...  
-Brighter than a yellow fire's light, than [the presence](https://github.com/ScammrsNvrDie/Perambulate/wiki/Presence-Beacon) beyond the screens  
+2566... 2... 63... The Numbers Displayed no brighter, no dimmer...  
+[The presence](https://github.com/ScammrsNvrDie/Perambulate/wiki/Presence-Beacon) bares no merit as it looms beyond the screens  
 
-They yet speak, boulder, louder, brighter!  
-Ere, it grew in an ultimate part what is set forth in this scene  
+They yet speak, bolder, louder!  
+in this scene  
